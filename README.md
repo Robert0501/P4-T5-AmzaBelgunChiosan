@@ -1,1 +1,1 @@
-# P4-T5-AmzaBelgunChiosan
+Echipa: Amza Robert-Ionut, Belgun Marian, Chiosan Ilie Radu
